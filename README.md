@@ -1,0 +1,2 @@
+# belajar
+hanya belajar saja
